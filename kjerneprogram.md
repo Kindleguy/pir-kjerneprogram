@@ -1,4 +1,4 @@
-# Piratpartiets kjerneprogram 2016
+# Piratpartiets kjerneprogram 2017
 
 ## Grunnlag, demokrati og politikk
 
